@@ -47,5 +47,5 @@ https://pl.kotl.in/SZ-lnB4J9
 • Lambdas equivalentes substituem funções nomeadas.
 
 ## Resultado
-https://pl.kotl.in/YS0qMEFB_
+https://pl.kotl.in/HV4XaG1fb
 
